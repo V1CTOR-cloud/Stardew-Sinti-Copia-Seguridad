@@ -1,0 +1,1 @@
+# Stardew-Sinti-Copia-Seguridad
